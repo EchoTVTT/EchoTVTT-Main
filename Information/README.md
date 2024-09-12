@@ -41,4 +41,4 @@
 - I served in the United States Military from 2018-2019. I was honorably discharged for fairly long list of medical issues that I deal with to this day. Some of the things that drew 
   me to coding and developing video games is my deep incredible passion for video games, and importantly how they make people, and myself included feel while they're playing.
 
-- I do have a Discord server that you are welcome to join my server at this link<https://discord.gg/H9duzJdJSJ>
+- I do have a Discord server that you are welcome to join my server at this link: https://discord.gg/H9duzJdJSJ
