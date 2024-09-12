@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SiptahTVTT I'm a current business owner of Quantum Dot Games, LLC
+- 👋 Hi, I’m @EchoTVTT I'm a current business owner of Quantum Dot Games, LLC
 
 - I also have recently changed my name to @EchoTV_TT. 
 
